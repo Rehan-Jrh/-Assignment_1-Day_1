@@ -1,1 +1,1 @@
-# -Assignment_1-Day_1
+On the first day I created github and Linkedin accounts
